@@ -14,4 +14,4 @@ https://youtu.be/l3AuvdcMzN8
 
 Slideshare PPT Link:
 
-https://www.slideshare.net/ChirudeepGorle/short-storypptx
+https://www.slideshare.net/ChirudeepGorle/short-story2pptx
